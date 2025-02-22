@@ -10,7 +10,7 @@ One of the best ways to get free rewards in PUBG is through official redeem code
 
 ### How to Redeem PUBG Codes?
 
-1. Visit the official PUBG redemption website: [Click Here](https://bit.ly/4hKY4XC) (Insert actual reward link here).
+1. Visit the official PUBG redemption website: [Click Here](https://bit.ly/4hKY4XC)
 2. Enter your PUBG character ID.
 3. Paste the redeem code.
 4. Click on Redeem and claim your reward.
@@ -77,6 +77,6 @@ Crate coupons allow you to open classic, premium, and supply crates for free. He
 
 ## Final Thoughts
 
-PUBG offers multiple ways to claim free rewards, UC, skins, and more in 2025. Keep checking for new redeem codes and participate in events and missions to unlock exclusive in-game items. Don't forget to visit the official PUBG rewards website to claim your free items: [Click Here]([https://bit.ly/4hKY4XC](https://muskanelectronic.com/top-3-best-oneplus-smartphones/)) (Insert actual reward link here).
+PUBG offers multiple ways to claim free rewards, UC, skins, and more in 2025. Keep checking for new redeem codes and participate in events and missions to unlock exclusive in-game items. Don't forget to visit the official PUBG rewards website to claim your free items: [Click Here]([https://bit.ly/4hKY4XC](https://muskanelectronic.com/top-3-best-oneplus-smartphones/)
 
 Stay tuned for more updates and enjoy your free rewards in PUBG!
